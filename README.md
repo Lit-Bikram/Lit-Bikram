@@ -67,8 +67,8 @@ GitHub
 
 ## 📫 Connect with Me
 
-LinkedIn: (Add your LinkedIn link)  
-GitHub: https://github.com/yourusername  
+LinkedIn: www.linkedin.com/in/bikrampal13  
+GitHub: https://github.com/Lit-Bikram 
 Email: pal.bikram2004@gmail.com
 
 ---
